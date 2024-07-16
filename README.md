@@ -7,9 +7,9 @@ No te pierdas la oportunidad de presenciar estas versiones transformadas en una 
 - **Ciudad de México**: 15 de Agosto, Foro Indie Rocks  
   [Ver ubicación en Google Maps](https://maps.app.goo.gl/VPKWBiSvJKpXBoTf8)
 - **Guadalajara**: 22 de Agosto, C3 Stage  
-  [Ver ubicación en Google Maps](https://goo.gl/maps/ejemplo2)
+  [Ver ubicación en Google Maps](https://maps.app.goo.gl/cVJnoWDKXpPAaehV8)
 - **Monterrey**: 29 de Agosto, Nodriza Estudio  
-  [Ver ubicación en Google Maps](https://goo.gl/maps/ejemplo3)
+  [Ver ubicación en Google Maps](https://maps.app.goo.gl/ahzAeLrPzMnEFynT9)
 
 Únete a nosotros para una noche de ritmos envolventes y melodías cautivadoras que exploran temas universales de amor, pérdida y nostalgia. Asegura tu entrada y sé parte de esta experiencia musical íntima.
 
