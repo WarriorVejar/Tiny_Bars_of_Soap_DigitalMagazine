@@ -15,7 +15,7 @@ No te pierdas la oportunidad de presenciar estas versiones transformadas en una 
 
 #MúsicaIndie #Conciertos #POP #Synthpop #NuevoLanzamiento
 --
-Para más información, visita la página de * Marvin Magazine *
+Para más información, visita la página de **Marvin Magazine**
 
 <a href="https://marvin.com.mx">
   <img src="https://i0.wp.com/marvin.com.mx/wp-content/uploads/2019/11/marvin-convocatoria.jpg" alt="Marvin" width="150" height="72.5">
