@@ -14,6 +14,8 @@ No te pierdas la oportunidad de presenciar estas versiones transformadas en una 
 Únete a nosotros para una noche de ritmos envolventes y melodías cautivadoras que exploran temas universales de amor, pérdida y nostalgia. Asegura tu entrada y sé parte de esta experiencia musical íntima.
 
 #MúsicaIndie #Conciertos #POP #Synthpop #NuevoLanzamiento
+
+![Tiny Bars of Soap](https://tinybarsofsoap.com/wp-content/uploads/2024/07/moskar-singing.jpg)
 --
 Para más información, visita la página de **Marvin Magazine**
 
